@@ -35,16 +35,20 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The light of the world A sermon preached at Botterwike in Holland, neere Boston, in Lincolnshire. By
+
+1. TO THE RIGHT VVorſhipfull Mr. THOMAS LEVENTHORPE Eſquire, Sonne and heyre to the renowned Knight, Sir IOHN LEVENTHORPE, T. G. wiſheth all happineſſe, and eternall bleſſedneſſe.
+
 #####Body#####
 
-1. I. I am the Light of the World.
+1. THE LIGHT OF THE VVORLD.
 
-1. II. He that followeth me.
+    _ I. I am the Light of the World.
 
-1. III. Shall not walke in darkneſſe.
+    _ II. He that followeth me.
 
-1. IIII. But ſhall haue the light of life.
+    _ III. Shall not walke in darkneſſe.
+
+    _ IIII. But ſhall haue the light of life.
 
 **Types of content**
 
